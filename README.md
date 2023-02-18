@@ -1,2 +1,1 @@
 # bhanuprsad
-bhanuprasad.jpeg
